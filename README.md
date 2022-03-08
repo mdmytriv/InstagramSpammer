@@ -1,2 +1,1 @@
-# InstagramSpammer
-Russian warship to “go fuck yourself”
+Russian warship, go f--- yourself 
